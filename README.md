@@ -1,2 +1,0 @@
-# Ostafiychuk.github.io
-Homework
